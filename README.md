@@ -64,7 +64,7 @@ TikTok
 
 Objetivo: garantir prioridade de uso, autoria pública e rastreabilidade científica do fenômeno.
 
-Se quiser agora, eu transformo isso num .pdf otimizado com DOI e formatação acadêmica internacional — me dá o ok e eu já gero pra você publicar.
+
 
 
 
